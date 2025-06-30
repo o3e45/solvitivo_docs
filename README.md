@@ -79,4 +79,4 @@ As a non-U.S. entrepreneur, it’s important to understand your legal and tax ob
 
 ## Contact Us
 Ready to form your LLC? Contact us to get started today!  
-You can also reach us by email at [support@solvitivo.com](mailto:support@solvitivo.com) or via our [contact form](#).
+You can also reach us by email at [support@solvitivo.com](mailto:owen@solvitivo.com) or via our [contact form](https://solvitivo.com/contact).
