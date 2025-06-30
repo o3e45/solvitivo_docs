@@ -1,7 +1,7 @@
 Pain Points – U.S. LLC Formation for International Entrepreneurs
 Many international entrepreneurs encounter pain points when trying to establish a business in the U.S. In this section, we address the most frequently asked questions and common challenges to help you understand the process and how Solvitivo can make the journey easier.
 
-Common Search Terms and Challenges
+Common Search Terms and Challenges:
 Why can't I build a business in the U.S. as a non-resident?
 One of the most common challenges faced by international entrepreneurs is understanding whether they are legally allowed to form a business in the U.S. While it may seem complicated, Solvitivo simplifies the process by allowing non-residents to form a U.S. LLC. You can complete all steps from anywhere in the world with our guided service.
 
